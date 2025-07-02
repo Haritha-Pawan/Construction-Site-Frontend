@@ -1,5 +1,2 @@
+
 ![Uploading cons.PNG…]()
-![cons2](https://github.com/user-attachments/assets/8ef5bd8e-cba1-4c85-8d37-3b8c2f3e0d80)
-![Uploading cons3.PNG…]()
-![Uploading cons5.PNG…]()
-![Uploading cons4.PNG…]()
